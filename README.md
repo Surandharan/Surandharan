@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **surenphoenix13@gmail.com**
 
-- 📄 Know about my experiences [My Resume](https://drive.google.com/file/d/1bixKJAqhRL7h7foOYL_raWGY9q4zFdYE/view?usp=drive_link)
+- 📄 Know about my experiences [My Resume](https://drive.google.com/file/d/1iqFlqK1nv57NLuXtUddfkZJna5iZM6r-/view?usp=drive_link)
 
 - ⚡ Fun fact **I love Programming and I love teaching stuff I know to people**
 <br></br>
